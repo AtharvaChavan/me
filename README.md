@@ -1,7 +1,7 @@
-From https://atharvachavan.github.io/me/
-https://bit.ly/atharvach
+From https://atharvachavan.github.io/me/ <br>
+https://bit.ly/atharvach <br>
 https://bit.ly/AtharvaChavan1
-
-
-Redirecting to https://atharvachavan.github.io/
+<br><br><br>
+____
+Redirecting to https://atharvachavan.github.io/<br>
 https://bit.ly/AtharvaC
